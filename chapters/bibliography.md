@@ -7,18 +7,14 @@
 1. Годовые отчеты Berkshire Hathaway, 1987 год.
 
 2. Уоррен Баффет, статья «Суперинвесторы из Грэхем-и-Доддсвилля», журнал
-Hermes, апрель 1984 года (Warren E. Buffett, The Superinvestors of
-Graham and Doddville, Hermes Magazine, April 1984).
+Hermes, апрель 1984 года (Warren E. Buffett, The Superinvestors of Graham and Doddville, Hermes Magazine, April 1984).
 
 Введение
 
 1. Атул Гаванде, статья «График нормального распределения», журнал The
-New Yorker, 6 декабря 2004 года (Atul Gawande, The Bell Curve, The New
-Yorker, December 6, 2004).
+New Yorker, 6 декабря 2004 года (Atul Gawande, The Bell Curve, The New Yorker, December 6, 2004).
 
-См. также: Richard Pascale, Jerry Sternin, and Monique Sternin, The
-Power of Positive Deviance: How Unlikely Innovators Solve the World's
-Toughest Problems (Boston: Harvard Business Press, 2010).
+См. также: Richard Pascale, Jerry Sternin, and Monique Sternin, The Power of Positive Deviance: How Unlikely Innovators Solve the World's Toughest Problems (Boston: Harvard Business Press, 2010).
 
 2. Robert J. Flaherty, The Singular Henry Singleton, журнал Forbes, 9
 июля 1979 года.
@@ -28,12 +24,10 @@ Toughest Problems (Boston: Harvard Business Press, 2010).
 1. Чарльз Мангер, служебная записка, 1 января 1983 года.
 
 2. Если не указан иной источник, все цитаты Мерфи взяты из телефонного
-интервью от 23 марта 2005 года и первого личного интервью от 25 июля
-2005 года.
+интервью от 23 марта 2005 года и первого личного интервью от 25 июля 2005 года.
 
 3. Статья «Приятная денежная проблема Тома Мерфи», журнал Forbes, 1
-октября 1976 года (Tom Murphy's Pleasant Cash Problem, Forbes, October
-1, 1976).
+октября 1976 года (Tom Murphy's Pleasant Cash Problem, Forbes, October 1, 1976).
 
 4. Интервью автора с Дэном Берком, 1 апреля 2005 года.
 
@@ -44,8 +38,7 @@ Toughest Problems (Boston: Harvard Business Press, 2010).
 7. Интервью автора с Филом Бойтом, 28 апреля 2005 года.
 
 8. Статья «Приятная денежная проблема Тома Мерфи», журнал Forbes, 1
-октября 1976 года (Tom Murphy's Pleasant Cash Problem, Forbes, October
-1, 1976).
+октября 1976 года (Tom Murphy's Pleasant Cash Problem, Forbes, October 1, 1976).
 
 9. Интервью автора с Дэвидом Уорго, 28 апреля 2005 года.
 
@@ -69,12 +62,10 @@ Toughest Problems (Boston: Harvard Business Press, 2010).
 6. Интервью автора с Уильямом Рутледжем, 23 февраля 2004 года.
 
 7. Джеймс Роскоу, статья «Множество жизней Teledyne», Financial World, 1
-ноября 1978 года (James P. Roscow, The Many Lives of Teledyne, Financial
-World, November 1, 1978).
+ноября 1978 года (James P. Roscow, The Many Lives of Teledyne, Financial World, November 1, 1978).
 
 8. Роберт Флаэрти, статья «Неповторимый Генри Синглтон», Forbes, 9 июля
-1979 года (Robert J. Flaherty, The Singular Henry Singleton, Forbes,
-July 9, 1979).
+1979 года (Robert J. Flaherty, The Singular Henry Singleton, Forbes, July 9, 1979).
 
 9. Роберт Флаэрти, статья «Сфинкс говорит», Forbes, 20 февраля 1978 года
 (Robert J. Flaherty, The Sphinx Speaks, Forbes, February 20, 1978).
@@ -154,8 +145,7 @@ July 9, 1979).
 4. Интервью автора с Дэвидом Уорго, 22 апреля 2008 года.
 
 5. Если не указан иной источник, все цитаты Дика Смита взяты из личного
-интервью от 23 апреля 2009 года в его офисе в Честнат-Хилле,
-Массачусетс.
+интервью от 23 апреля 2009 года в его офисе в Честнат-Хилле, Массачусетс.
 
 Глава 8
 
@@ -189,12 +179,9 @@ July 9, 1979).
 (Andrew Barry, What a Gusher, Barron's, November 16, 2009).
 
 5. Мичио Накамото и Дэвид Уайтон, «Глава Citigroup продолжает выкупы»,
-статья в газете Financial Times, 9 июля 2007 года (Michiyo Nakamoto and
-David Wighton, Citigroup Chief Stays Bullish on Buy-outs, Financial
-Times, July 9, 2007).
+статья в газете Financial Times, 9 июля 2007 года (Michiyo Nakamoto and David Wighton, Citigroup Chief Stays Bullish on Buy-outs, Financial Times, July 9, 2007).
 
 Послесловие
 
 1. Атул Гаванде, «Манифест контрольного списка» Atul Gawande, The
-Checklist Manifesto: How to Get Things Right (New York: Metropolitan
-Books, 2010).
+Checklist Manifesto: How to Get Things Right (New York: Metropolitan Books, 2010).
